@@ -9,6 +9,7 @@ I am interested in a career as a Software Engineer because I am passionate about
 Now, I am looking for an opportunity to bring my skills and knowledge I have learned through my career to a new team. You can view some of my projects on this GitHub profile or connect with me directly to learn more about them.
 
 Feel free to connect with me here!
+
 🌱 [LinkedIn](https://www.linkedin.com/in/yingyingfeng1/)
 
 🌱 [Website](https://www.yingying-feng.com)
